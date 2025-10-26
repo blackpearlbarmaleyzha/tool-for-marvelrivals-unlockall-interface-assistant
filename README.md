@@ -1,0 +1,1 @@
+# tool-for-marvelrivals-unlockall-interface-assistant
